@@ -1,7 +1,11 @@
- Hi, I’m KooKoo
+Hi, I’m KooKoo
+
 I like videogames, and mods
+
 I can help with Subnautica Mod related things
+
 Discord: KooKoo92928
+
 He/Him
 
 
